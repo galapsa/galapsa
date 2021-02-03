@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋🏾
 
 ![howimdoing](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
